@@ -4,3 +4,5 @@
 <br>
 <br>
 <img src="https://i.pinimg.com/1200x/63/46/d3/6346d391a68a12c0dc764596ff5a11f7.jpg">
+
+<p align=center> <a href="https://logansarg.straw.page" target="_blank">straw   &emsp; <a href="https://en.pronouns.page/@logansargeant" target="_blank"> prns  &emsp;  <a href="https://kvyatcavities.atabook.org/?page=1" target="_blank"> ata
